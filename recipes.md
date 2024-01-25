@@ -56,6 +56,8 @@ Ingredients:
 - 1/4 cup milk
 - 1/4 cup grated Parmesan cheese
 - 1 egg
+- 1 cup sugar
+-1 jar of tomato paste
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
@@ -77,6 +79,7 @@ Ingredients:
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
 - 4 hamburger buns
+- Onion
 - Lettuce
 - Tomato
 - Mayonnaise
@@ -101,7 +104,7 @@ Ingredients:
 - 3/4 cup brown sugar
 - 2 eggs
 - 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 5 cups semisweet chocolate chips
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
