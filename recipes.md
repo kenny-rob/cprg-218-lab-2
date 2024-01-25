@@ -113,3 +113,24 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Banana Bread 
+
+Ingredients:
+- 3 very ripe bananas, (medium/large)
+- ½ cup unsalted butter, (8 Tbsp) at room temperature
+- 3/4 cup granulated sugar
+- 2 large eggs, lightly beaten
+- 1 ½ cups all-purpose flour
+- 1 tsp baking soda
+- ½ tsp salt
+- ½ tsp vanilla extract
+- 1 cup walnuts
+- ½ cup raisins
+
+Instructions: 
+1. Preheat the oven to 350°F.
+2. In a mixing bowl, cream together 8 Tbsp softened butter and 3/4 cup sugar 
+3. Mash bananas with a fork until the consistency of chunky applesauce and add them to the batter along with 2 eggs, mixing until blended. 
+4. In a separate bowl, whisk together: 1 1/2 cups of flour, 1 tsp of baking soda and 1/2 tsp of salt then add to batter.
+5. Add 1/2 tsp of vanilla extract and mix in chopped walnuts and raisins. Pour into prepared loaf pan. Bake at 350˚F for 55-60 min or until a toothpick inserted into the center comes out clean. Let banana bread rest for 10 min before transferring to a wire rack to cool.
